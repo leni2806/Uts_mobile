@@ -14,3 +14,4 @@
 
 [Klik ini untuk cek UX di YT](https://youtube.com/shorts/C9IGfmdQQF4?feature=share)
 
+[Klik ini untuk cek vidio di canva](https://www.canva.com/design/DAG3vHoqiws/Hc6Fl7tHTCZRZ-nHmDRbmA/edit?utm_content=DAG3vHoqiws&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
