@@ -12,5 +12,5 @@
 
 [Klik ini untuk cek Prototype figma](https://www.figma.com/proto/YdlfgTKnnzG1I7gDslEMVK/projrct-1?node-id=0-1&t=E1cQY98QFaqn4069-1)
 
-[Klik ini untuk cek UX di YT]([https://youtube.com/shorts/C9IGfmdQQF4](https://youtube.com/shorts/C9IGfmdQQF4?feature=share)
+[Klik ini untuk cek UX di YT](https://youtube.com/shorts/C9IGfmdQQF4?feature=share)
 
